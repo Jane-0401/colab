@@ -1,3 +1,1 @@
 # Colobaration
-
-Bu benim ichin
